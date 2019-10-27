@@ -11,3 +11,4 @@ First day goals dump:
 
 + Help reduce same content.
 
++ Have a better quality social media experience.
